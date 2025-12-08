@@ -1,4 +1,4 @@
-# 每日大赛·51黑料网——独家爆料天天有，吃瓜热点不错过！
+# [每日大赛·51黑料网——独家爆料天天有，吃瓜热点不错过](https://www.meiriheiliao.cloud)！
 
 每日大赛·51黑料网:https://www.meiriheiliao.cloud
 
